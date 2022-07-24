@@ -4,7 +4,7 @@ layout: default
 
 ## Pencord Teens: Friends or not?
 
-Friendship is a bond between to fellows, the fellows are bind together by a tie, it may unknot from time to time; it will eventually knot back again. Alexa Nnamdi-Christian and Andrew Adejomi have that inseparable bond, but if the tie unknots will they be able to knot it back again?Let’s see how the story unfolds.
+Friendship is a bond between two fellows, the fellows are bind together by a tie, it may unknot from time to time; it will eventually knot back again. Alexa Nnamdi-Christian and Andrew Adejomi have that inseparable bond, but if the tie unknots will they be able to knot it back again?Let’s see how the story unfolds.
 
 “Ow!” wailed Alexa, She was playing soccer and the ball hit her leg, badly. Andrew rushed over to her to see if she was okay, he hated when this happened not that she got injured but because the whole class would pair them, saying “Alexa and Andrew sitting on a tree…….” You know the rest and the both of them will remind the class that they were just friends…….just friends yet, no one believed them.
 
